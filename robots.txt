@@ -1,0 +1,4 @@
+User-agent: *
+Allow: /
+
+Sitemap: https://Zerooscreen.github.io/website-indexing-google/sitemap.xml
