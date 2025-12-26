@@ -45,7 +45,7 @@ Welcome! This page contains a list of streaming and download links for various T
 - [Assistir Avatar 3 - Wonderlink](https://en.wonderlink.de/@assistiravatar3)  - Added 2025-12-26  
 - [Five Nights at Freddy's 2 Filmes](https://en.wonderlink.de/@fivenightsatfreddys2filmes) - Added 2025-12-26  
 - [Five Nights at Freddy's 2 Online HD](https://en.wonderlink.de/@fivenightsatfreddys2onlinehd) - Added 2025-12-26  
-- [Assistir Five Nights at Freddy's 2](https://en.wonderlink.de/@assistirfivenightsatfreddys2 - Added 2025-12-26  
+- [Assistir Five Nights at Freddy's 2](https://en.wonderlink.de/@assistirfivenightsatfreddys2) - Added 2025-12-26  
 
 
 
